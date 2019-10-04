@@ -6,4 +6,4 @@ Farhan Kapadia<br/>
 Harsh Kapadia <br/>
 Mohit S Punjabi <br/>
 DSC Vivekanand <br/>
-Chinmay Waykole Vivekanand<br/>
+Chinmay Waykole Vivekanand <br/>
